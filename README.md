@@ -4,4 +4,4 @@
 <p align="center"> he / it prns, omnisexual </p>
 <p align="center"> <img width="700" height="400" alt="Untitled1208_20261027162342" src="https://github.com/user-attachments/assets/a5e919c2-858e-403d-b444-fe402e561c8b" /> </p>
 
-
+$\color{red}{\text{This is red text}}$
