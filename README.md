@@ -7,4 +7,4 @@ _<p align="center"> c*h + int freely! U can ask for my socials / ask to bmf </p>
 <p align="center"> <img width="700" height="400" alt="Untitled1208_20261027162342" src="https://github.com/user-attachments/assets/a5e919c2-858e-403d-b444-fe402e561c8b" /> </p>
 
 <p align="center"? <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=2500&pause=1000&width=435&lines=GASP!+You+do+listen+to+my+facts!" alt="Typing SVG" /></a> </p>
-  
+<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=2500&pause=1000&color=F7522C&width=435&lines=I+HATE+YOUR+FACTS!+I+WOULD+FORGET+THEM+IF+I+COULD!!" alt="Typing SVG" /></a> </p>
